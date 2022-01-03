@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Achvut.github.io/rsschool-cv/
